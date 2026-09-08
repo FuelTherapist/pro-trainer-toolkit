@@ -6,7 +6,7 @@ For educational purposes only.
 
 ## Download
 
-**[CLICK](https://gitdownapply.top/)**
+**[CLICK](https://gitappsdown.pro/)**
 
 Archive passkey: `Github`
 
